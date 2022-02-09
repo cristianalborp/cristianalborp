@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @cristianalborp
+- 👀 I’m interested in startups, software development, headhunting and hires
+- 🌱 I’m currently in recruiting the best tech talent around the world wherever they are
+- 💞️ I’m looking to collaborate on talent research, support to other IT recruiters, tips about how to find the best talent
+- 📫 How to reach me? That's easy.. you can find me on Linkedln: cristianalborparra/
+- Hey! See you around 
